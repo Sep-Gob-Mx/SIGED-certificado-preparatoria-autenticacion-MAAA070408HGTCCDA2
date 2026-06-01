@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-MAAA070408HGTCCDA2
+MAAA070408HGTCCDA2
